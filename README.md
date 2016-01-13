@@ -1,1 +1,1 @@
-# ideas
+# Ideas :bulb:
